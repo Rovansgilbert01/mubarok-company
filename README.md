@@ -1,1 +1,0 @@
-# mubarok-company
